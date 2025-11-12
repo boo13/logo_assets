@@ -1,1 +1,1 @@
-# upNEXT_Canva
+# Logo Assets for upNEXT Canva
